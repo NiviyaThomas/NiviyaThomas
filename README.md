@@ -1,1 +1,1 @@
-Hi myself NiviyaThomas, completed BE working professional currently doing in digital marketing ads.
+Hi myself NiviyaThomas, working professional currently doing in digital marketing ads.
